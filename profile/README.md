@@ -2,6 +2,8 @@
 
 ## ⚽ What is Soccer Random Unblocked?
 
+## <a href="https://izigames.net/soccer-random/">👉 Play Soccer Random Unblocked 👈</a>
+
 **Soccer Random Unblocked** is a wacky, fast-paced **2-player soccer game** where chaos rules the field! With each click, your players jump, flip, kick, and tumble their way to victory (or hilarious failure). It’s a **crazy**, **epic**, and **blazing-fun** experience that anyone can enjoy – at school, at home, or anywhere else.
 
 Whether you're playing solo or challenging your friend, each round is completely unpredictable. You never know if you’ll kick the ball… or kick your teammate instead!
